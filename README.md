@@ -21,8 +21,7 @@ Supportix has [a forum](https://forum.supportix.net/) that is the place for disc
 
 ## Final
 
-Increase your Portfilio
-Supportix Bot
+Increase your Portfilio with Supportix Bot
 
 *Use Supportix at your own risk.*
 
